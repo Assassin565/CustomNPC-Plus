@@ -4,7 +4,7 @@
 
 > Discord: https://discord.gg/WDMgfqdQVG
 >
-> Website: https://www.havencore.shop/dbcfusions-store
+> Website: https://dbc-fusions.tebex.io/
 >
 > Modpack: https://www.technicpack.net/modpack/dbc-fusions.1613868
 >
